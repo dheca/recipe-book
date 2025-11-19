@@ -9,3 +9,4 @@
 6. Mix the coffee powder and water in the specific tool
 7. Follow the instructions of your chosen method (am i not the most useful guide?)
 8. Do not forget to enjoy!
+9. How's the caffeine hit going?
