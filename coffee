@@ -8,4 +8,4 @@
 5. If not italian coffee maker, start boiling water (jump to next step if you chose cold brew method)
 6. Mix the coffee powder and water in the specific tool
 7. Follow the instructions of your chosen method (am i not the most useful guide?)
-8. Do not forget to enjoy!
+8. Enjoy the caffeine hit!
